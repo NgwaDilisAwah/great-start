@@ -1,3 +1,3 @@
 # great-start
 
-it's so good learning new things
+it's so good learning new things!
